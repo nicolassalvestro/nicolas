@@ -7,6 +7,6 @@
 
 ## Entrar em contato comigo se quiser figurinha +18
 .@_salvestro (segue lá)
-(44)99981-1114
+.(44)99981-1114
 
 
