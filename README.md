@@ -4,7 +4,7 @@
 .ja fui pego pela policia quando eu peguei a bizinha da minha mãe, ganhei uma multa de 2000 mil reais e nunca mais andei de biz, policia filha da puta
 .eu jogo um fut (tento)
 . o resto é so regresso!
-
+.Deus em primeiro lugar!!!
 ## Entrar em contato comigo se quiser figurinha +18
 .@_salvestro (segue lá)
 .(44)99981-1114
